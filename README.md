@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @fathimathshamla
+- 👋 Hi, I’m fathimath shamla
 
